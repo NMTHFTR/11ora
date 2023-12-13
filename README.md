@@ -1,3 +1,3 @@
 # 11ora
 bruh
-smoke sum drin sum pop one
+smoke sum drink sum pop one
